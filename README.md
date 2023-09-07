@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Second21. -
+- 👀 I’m interested in Javascript and IT-Drift. -
+- 🌱 I’m currently learning IT at Kuben Videregaende Skole. -
+- 📫 How to reach me = Tlf. +4748387972 or Email: Ubaidkhan21428@gmail.com
