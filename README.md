@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Second21. -
-- 👀 I’m interested in Javascript and IT-Drift. -
+- 👋 Hi, I’m Ubaid Shahzad Ali Khan -
+- 👀 I’m interested in Javascript and Basically Front-end Development. -
 - 🌱 I’m currently learning IT at Kuben Videregaende Skole. -
 - 📫 How to reach me = Tlf. +4748387972 or Email: Ubaidkhan21428@gmail.com
